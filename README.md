@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @wolfmond
+- 👀 I’m interested in *coding, photographing, field recordings and noisewalks*.
+- 🌱 I’m currently learning *SuperCollider* & *Python*
+- 💞️ I’m looking to collaborate *on live sound performances*
+- 📫 How to reach me *(see website link in my profile)*
+- 😄 Pronouns: I don't care. Use my name *»wolfmond«* instead :)
+- ⚡ Fun fact: am living a quiet life and enjoying it.
